@@ -19,7 +19,7 @@
 
 <br/>
 
-_💞️ Looking for an intership and am always open to collaborating on personal projects<br/>
+_💞️ Looking for an internship and am always open to collaborating on personal projects<br/>
 📫 Personal email: lee28.christine@gmail.com_
 
 
