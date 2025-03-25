@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Christine!
 👩🏻‍🎓 Junior Information Science Major and General Business & Science, Technology, Ethics, and Policy Minor (STEP) [@UMD, College Park](https://umd.edu/)<br/>
-👩🏻‍💻 Particularly interested in Data Science. Aside from tech, I'm interested in the business scene and would love to be my own boss<br/>
+👩🏻‍💻 Particularly interested in Data Science (visualizations are pretty cool). Aside from tech, I'm interested in the business scene and would love to be my own boss<br/>
 💭 I’m currently learning a few different sports 🎾 🏐 🥒 🏃‍♀️, love to cook, and am constantly figuring out how to develop myself<br/>
 ⚡ Fun fact: Milk before cereal, always
 
